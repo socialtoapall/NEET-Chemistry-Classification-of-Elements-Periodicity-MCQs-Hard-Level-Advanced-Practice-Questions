@@ -1,0 +1,2 @@
+# NEET-Chemistry-Classification-of-Elements-Periodicity-MCQs-Hard-Level-Advanced-Practice-Questions
+Challenge yourself with hard-level NEET MCQs from the Classification of Elements &amp; Periodicity in Properties chapter. Practice advanced problems on periodic trends, ionization enthalpy, electron affinity, atomic radius, electronegativity, and block properties to strengthen conceptual clarity and exam-level problem solving.
